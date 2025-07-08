@@ -1,1 +1,0 @@
-# gramado data placeholder
